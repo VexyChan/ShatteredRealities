@@ -1,4 +1,4 @@
 **ShatteredRealities**
 
-Please report any issues you  have with our current build of the mod pack here, please leave a crash report  
+Discontinued, place join the discord to browse other modpacks we have available to you, all come with public servers as default
 Our discord: https://discord.gg/syU5F6n
